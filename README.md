@@ -22,4 +22,4 @@ Under the expert guidance of our Program Director, Dr. Sandeep Rao, and with Geo
 This wasn’t just another workshop—it was a real-life test of my decision-making abilities, analytical skills, and financial acumen in a dynamic, high-pressure setting. The simulations blurred the lines between theory and practice, making me feel like I was on the trading floors of top financial institutions.
 
 
-A massive thank you to Dublin City University Dr. Sandeep Rao and George Backhouse for giving me this phenomenal learning experience. This is the kind of training that prepared me for the real world of finance, and I can’t wait to apply these insights in our future careers!
+This is the kind of training that prepared me for the real world of finance, and I can’t wait to apply these insights in our future careers!
